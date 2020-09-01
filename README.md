@@ -1,4 +1,6 @@
 # Myself
+https://medium.com/@nivesararao2700/live-each-day-as-if-your-life-had-just-begun-tirupati-nivesara-c9048366d9cf
+
 The purpose of our lives is to be happy
 “if there’s a book you want to read, but it hasn’t been written yet,then you must write it”.
 I was born when people were celebrating the victory of the forces of good over Evil i.e an early morning of Dussehra during October .Though i was born in Vijayawada i was fully brought up in Chennai . As a child i was very naughty and talkative one .I had a great childhood around my big family with all my cousins.
